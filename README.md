@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @puguhrismadi
 - 👀 I’m interested in education and training
-- 🌱 I’m currently learning Project Management 
 - 💞️ I’m looking to collaborate on product development
 - 📫 How to reach me telegram @puguhrismadi
 
